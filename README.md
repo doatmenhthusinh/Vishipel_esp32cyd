@@ -2,5 +2,5 @@
 Screen Data for Vifish24
 
 
-![f88d6bc8-0334-4723-a040-472efa553063](https://github.com/user-attachments/assets/c47a3dbb-5e52-4b12-aa02-501a9944ad8e)
+![b91acc3ba5752d2b7464](https://github.com/user-attachments/assets/a687ef01-1f97-4649-add7-31d579ca709b)
 
